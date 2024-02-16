@@ -1,0 +1,2 @@
+# Introduction
+J'ai décidé de créer cette liste pour vous fournir des outils et des liens qui vous permettent de gagner du temps ou même d'augmenter votre productivité, le tout en français. Je maintiens cette liste seul et de manière bénévole.
